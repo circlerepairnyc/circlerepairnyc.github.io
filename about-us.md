@@ -1,5 +1,10 @@
-## About Us
+# Who we are: Circle Repair NYC
+Text
 
-TBD
+## What we’ve read
+Text
+
+## Community Guidelines
+Text
 
 [back](./)
