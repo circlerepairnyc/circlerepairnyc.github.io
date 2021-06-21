@@ -1,4 +1,5 @@
-# Table of Contents
+# Circle Repair NYC
+
 1. [Content Warning](#content-warning)
 2. [What happened & why it matters](#what-happened)
 3. [What we’ve tried and what hasn’t worked](#what-tried)
