@@ -73,7 +73,7 @@ The following are the survivor's asks (in order of immediacy and importance):
 
 3.  For Ann to write a public apology for the harm caused.
 
-For Ann to participate in a TJ process that addresses topics such as: racialized harm and unlearning racial privilege, white performative allyship on social media, DARVO (gaslighting strategy of **d**enying, **a**ttacking and **r**eversing **v**ictim and **o**ffender), and taking accountability for harm.
+For Ann to participate in a TJ process that addresses topics such as: racialized harm and unlearning racial privilege, white performative allyship on social media, **DARVO** (gaslighting strategy of **d**enying, **a**ttacking and **r**eversing **v**ictim and **o**ffender), and taking accountability for harm.
 
 ## How you can support <a name="support"></a>
 We acknowledge that each person's role, depending on their networks, relationships, and proximity to power will be different in this mutual aid request.
