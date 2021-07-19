@@ -10,7 +10,7 @@
 
 
 ## Content Warning <a name="content-warning"></a>
-Content warning for what's below: includes descriptions of racialized harm and intimate partner violence, and threats of state/police intervention. Please read if/when you are feeling up for it, when you have a glass of water handy, or any other tools you use to ground. We recommend [this sheet from the NYC TJ Hub on self-guided self care (hyperlinked)](https://docs.google.com/document/d/123TviiR-DcRdH_dpfYVpOVrdy_plVgPzztCJ8ALOh40/edit).
+Content warning for what's below: includes descriptions of racialized harm and intimate partner violence, and threats of state/police intervention. Please read if/when you are feeling up for it, when you have a glass of water handy, or any other tools you use to ground. We recommend [this sheet from the NYC TJ Hub on self-guided self care](https://docs.google.com/document/d/123TviiR-DcRdH_dpfYVpOVrdy_plVgPzztCJ8ALOh40/edit).
 
 ## What Happened & Why It Matters <a name="what-happened"></a>
 Ann has caused harm to Vijay physically, financially (withholding security deposit), as well as made threats of state/police intervention. On June 19, 2019, while in a relationship with Vijay, Ann threatened to call the police on them. This action put Vijay in a trauma-based freeze mode, and Ann made this threat knowing Vijay’s traumatic history with the police and the U.S. surveillance state.
