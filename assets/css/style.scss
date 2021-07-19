@@ -9,7 +9,7 @@ $color-yellow: #FFEE83;
 $color-green: #748C4F;
 
 $font-avenir: 'Avenir Medium';
-$font-quicksand-light: 'Quicksand', sans-serif;
+$font-quicksand: 'Quicksand', sans-serif;
 
 h1, h2, h3 {
   font-family: $font-avenir;
@@ -18,4 +18,5 @@ h1, h2, h3 {
 p {
   font-family: $font-quicksand-light;
   font-size: 16px;
+  font-weight: regular;
 }
