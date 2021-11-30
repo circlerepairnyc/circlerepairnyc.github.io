@@ -83,99 +83,99 @@ You as an individual may not realize the impact of your actions but if someone l
 
 # Untitled 
 
-Is the sky white or is there a deep blue obscured
+_Is the sky white or is there a deep blue obscured_
 
-Is that a birds nest or a wasp nest
+_Is that a birds nest or a wasp nest_
 
-When I look you in the eyes you will know your soul so look away
+_When I look you in the eyes you will know your soul so look away_
 
-The burden of your lies will last for a long time so be careful with the words you speak 
+_The burden of your lies will last for a long time so be careful with the words you speak_
 
-I will live for a long time and I will walk my path 
+_I will live for a long time and I will walk my path_
 
-The length of this movement will be the length of your burden 
+_The length of this movement will be the length of your burden_
 
-Avoiding your equilibrium because of a shame that is less substantial than a dream
+_Avoiding your equilibrium because of a shame that is less substantial than a dream_
 
-I am small and one of millions but it is only this speck where I can now live so it's only this story I must tell
+_I am small and one of millions but it is only this speck where I can now live so it's only this story I must tell_
 
-And you don't need to listen but it is for those who do
+_And you don't need to listen but it is for those who do_
 
-The things I found hard to say 
+_The things I found hard to say_
 
-things that I thought didn't need to be said 
+_things that I thought didn't need to be said_
 
-But the echo of your distortions lands in the fields I walk 
+_But the echo of your distortions lands in the fields I walk_
 
-It may make you uncomfortable but my life cannot be replaced 
+_It may make you uncomfortable but my life cannot be replaced_
 
-So I have to speak and let it be like words written in stone 
+_So I have to speak and let it be like words written in stone_
 
-And your words turn to blood on your hands and underneath your nails
+_And your words turn to blood on your hands and underneath your nails_
 
-The things I have to say come from a small axe and I only wish to cut what is said it's edge will not touch your skin
+_The things I have to say come from a small axe and I only wish to cut what is said it's edge will not touch your skin_
 
-How can I ever be a tall tree I never wished for heights I only wished to find roots
+_How can I ever be a tall tree I never wished for heights I only wished to find roots_
 
-You would only understand if you have been plucked and torn away
+_You would only understand if you have been plucked and torn away_
 
-What are lies ? They are the lies clothed as sympathy.  They are my trauma equated with unreliability and violence.
+_What are lies ? They are the lies clothed as sympathy.  They are my trauma equated with unreliability and violence._
 
-You have seen for 4 years a tactic of reversal 
+_You have seen for 4 years a tactic of reversal_
 
-And this same strategy is used again
+_And this same strategy is used again_
 
-But this is a new violence 
+_But this is a new violence_
 
-It feels bigger than your initial harm
+_It feels bigger than your initial harm_
 
-And now there are more perpetrators and it's not in the dark behind the door of that lonely apartment
+_And now there are more perpetrators and it's not in the dark behind the door of that lonely apartment_
 
-It's a violence said in a tone that betrays its meaning
+_It's a violence said in a tone that betrays its meaning_
 
-"Poor thing" is really a clever blade conscious or unconscious to drive me into the state you painted me with
+_"Poor thing" is really a clever blade conscious or unconscious to drive me into the state you painted me with_
 
-If I was not mad and mentally unstable this will do the trick and when they see me or hear me they will see this trembling and say this is not a reliable voice 
+_If I was not mad and mentally unstable this will do the trick and when they see me or hear me they will see this trembling and say this is not a reliable voice_ 
 
-It works your method works but I will have to speak through the trembling and through the dismissal
+_It works your method works but I will have to speak through the trembling and through the dismissal_
 
-The voice that says what will I look like what will they say
+_The voice that says what will I look like what will they say_
 
-What I am is what I am 
+_What I am is what I am_
 
-I will attempt not to manicure and I will speak as freely and naturally as I can
+_I will attempt not to manicure and I will speak as freely and naturally as I can_
 
-My ancestors are faithful the Buddhas are faithful the protectors are faithful 
+_My ancestors are faithful the Buddhas are faithful the protectors are faithful_
 
-I won't use the politically correct language or the clothing of trendy framing but will speak as I would in my dreams to my mother
+_I won't use the politically correct language or the clothing of trendy framing but will speak as I would in my dreams to my mother_
 
-I don't trust this will give me peace because I have peace 
+_I don't trust this will give me peace because I have peace_ 
 
-I don't think this will give me a freedom because I am free 
+_I don't think this will give me a freedom because I am free_
 
-It may give you those things if you wish 
+_It may give you those things if you wish_
 
-But for me it will give my words breathe
+_But for me it will give my words breathe_
 
-It will enter the sphere and it will do its own work
+_It will enter the sphere and it will do its own work_
 
-The real dharma is confession it's not in a temple not in a form with three eyes 
+_The real dharma is confession it's not in a temple not in a form with three eyes_
 
-It is your two eyes looking wide open at your meats and your liquids bubbling over
+_It is your two eyes looking wide open at your meats and your liquids bubbling over_
 
-My name is victory how could I be overcome
+_My name is victory how could I be overcome_
 
-Would you make my mother and father a liar would you make my grandmothers prayers on that sacred hill in Mumbai a lie
+_Would you make my mother and father a liar would you make my grandmothers prayers on that sacred hill in Mumbai a lie_
 
-It is impossible the sun and moon would be destroyed before the truth could be destroyed
+_It is impossible the sun and moon would be destroyed before the truth could be destroyed_
 
-Your curse has no power against the truth
+_Your curse has no power against the truth_
 
-I wanted to write poetry when I was younger the energy was present but the words found no form 
+_I wanted to write poetry when I was younger the energy was present but the words found no form_
 
-Life said wait and all the things of your heart will find references and those words will have no choice but to be written
+_Life said wait and all the things of your heart will find references and those words will have no choice but to be written_
 
-It always felt inevitable even then
+_It always felt inevitable even then_
 
 ---
 [back](./)
