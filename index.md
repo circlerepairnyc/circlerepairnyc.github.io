@@ -7,19 +7,19 @@
 4. [DETAILS](#details)
 
 ## WHAT HAPPENED <a name="what-happened"></a>
-__Ann caused harm in her partnership with Jaya by:__
+Ann caused harm in her partnership with Jaya by:
   -   Threatening state/police intervention (specifically threatened to call the cops on Jaya on June 19, 2019) knowing Jaya's history of violence by cops
   -   Continued physical harassment/intimidation
   -   Taking shared resources
   -   Fetishizing
   -   Isolating Jaya when she spoke out about the harm
 
-__After their relationship ended:__
+After their relationship ended:
   -   Refusing to take accountability for harm
   -   Ann moved her business and her home into Crown Heights, where Jaya has lived for over a decade. Her business is now 1 block away from Jaya's apartment, on her way to the train. This has a huge impact on Jaya's mental health.
   -   Ann's business on Nostrand Ave, where her prices are inaccessible ($110 for a haircut, $36 for 3.5 oz of shea butter and $60 for hand sanitizer), contributes to a process of gentrification of Crown Heights to push out and price out Black and POC people and businesses. More info on this [here](https://thebridgebk.com/nostrand-avenue-why-its-new-gentrification-flash-point/) and [here](https://www.youtube.com/watch?v=klqHzXQVWKs).
 
-__Now:__
+Now:
   -   Ann has refused to participate in any form of accountability process, which has brought us to the point of having to make this public request online
   -   Ann maintains her business in Jaya's neighborhood which is triggering for her
 
