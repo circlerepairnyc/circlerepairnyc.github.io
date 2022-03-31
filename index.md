@@ -29,18 +29,21 @@ These are the survivor’s needs (in order of immediacy / importance):
 2. For Ann to negotiate boundaries around groups and events that may take place in the overlap of their two circles (ie. which events not to go to, what happens when both people are there)
 
 ## WHAT YOU CAN DO <a name="what-to-do"></a>
-1.  **If you do not know Ann:** We ask that you please **do not** reach out to her, comment on her social media, or contact her in any way. We encourage people to talk about this issue with those you know and trust (word of mouth is best).
-    1.  Our goal here is not rooted in canceling this person, but about getting the survivor's needs met, which are direct consequences of the harm Ann caused. Online comments and messages from strangers can feel alienating, isolating and make one's defenses shoot up. We think this is counterproductive to our goals.
-    2.  Also, we know this isn't the first time this kind of harm has taken place within an intimate relationship setting, and that others may have similar experiences. We are here at <circlerepairnyc@gmail.com> if you have questions, comments or a need to communicate. We'll do our best to get back to you asap.
+#### If you do not know Ann:
+We ask that you please **do not** reach out to her, comment on her social media, or contact her in any way. We encourage people to talk about this issue with those you know and trust (word of mouth is best).
+1.  Our goal here is not rooted in canceling this person, but about getting the survivor's needs met, which are direct consequences of the harm Ann caused. Online comments and messages from strangers can feel alienating, isolating and make one's defenses shoot up. We think this is counterproductive to our goals.
+2.  Also, we know this isn't the first time this kind of harm has taken place within an intimate relationship setting, and that others may have similar experiences. We are here at <circlerepairnyc@gmail.com> if you have questions, comments or a need to communicate. We'll do our best to get back to you asap.
 
-2.  **If you are close to Ann:** reach out to us (<circlerepairnyc@gmail.com>) if you would like to discuss coordinating support for Ann fulfilling this mutual aid request or forming part of Ann's support team, with her consent. If you don't want to be in contact with us, try to have conversations with Ann about the importance of this mutual aid request / call for accountability.
+#### If you are close to Ann:
+Reach out to us (<circlerepairnyc@gmail.com>) if you would like to discuss coordinating support for Ann fulfilling this mutual aid request or forming part of Ann's support team, with her consent. If you don't want to be in contact with us, try to have conversations with Ann about the importance of this mutual aid request / call for accountability.
 
-3.  **If you are a client of Ann:** Make a choice whether to continue supporting her business while it remains in Crown Heights and while she has not taken accountability for this harm.
-    1.  POC hair community you can support / go to instead (email us if you want to be added to this list!)
-        -   [Camera Ready Kuts](https://www.camerareadykutz.com/) 73 Utica Ave
-        -   @dezisdope (IG)
-        -   @studio.botanicum (IG)
-        -   Ztylez Studio 69-16 Roosevelt Ave
+#### If you are a client of Ann:
+Make a choice whether to continue supporting her business while it remains in Crown Heights and while she has not taken accountability for this harm.
+-  POC hair community you can support / go to instead (email us if you want to be added to this list!)
+    -   [Camera Ready Kuts](https://www.camerareadykutz.com/) 73 Utica Ave
+    -   @dezisdope (IG)
+    -   @studio.botanicum (IG)
+    -   Ztylez Studio 69-16 Roosevelt Ave
 
 ## Details <a name="details"></a>
 _Below is a longer-form description of what happened for anyone who wants more information or details. CW: racial harm, weaponizing whiteness / white femininity, intimate partner violence, threats of calling police on a partner in an intimate setting. Please continue reading if/when you are feeling up for it, or with grounding tools at hand. We recommend [this sheet from the NYC TJ Hub on self-guided self care](https://docs.google.com/document/d/123TviiR-DcRdH_dpfYVpOVrdy_plVgPzztCJ8ALOh40/edit)._
