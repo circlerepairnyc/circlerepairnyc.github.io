@@ -1,12 +1,12 @@
 # Circle Repair NYC
 *This is a Mutual Aid Request intended to secure safety and stability for Jaya, a trans POC survivor of intimate partner violence by her white ex-partner, Ann. We are making this request after trying to engage in a confidential accountability process with this person who caused harm, who has refused any and all requests for accountability. She has since opened a business close to where the survivor calls home and has lived for over a decade.*
 
-1. [WHAT HAPPENED](#what-happened)
-2. [NEEDS](#needs)
-3. [WHAT YOU CAN DO](#what-to-do)
-4. [DETAILS](#details)
+1. [What Happened](#what-happened)
+2. [Needs](#needs)
+3. [What You Can Do](#what-to-do)
+4. [Details](#details)
 
-## WHAT HAPPENED <a name="what-happened"></a>
+## What Happened <a name="what-happened"></a>
 Ann caused harm in her partnership with Jaya by:
   -   Threatening state/police intervention (specifically threatened to call the cops on Jaya on June 19, 2019) knowing Jaya's history of violence by cops
   -   Continued physical harassment/intimidation
@@ -23,12 +23,12 @@ Now:
   -   Ann has refused to participate in any form of accountability process, which has brought us to the point of having to make this public request online
   -   Ann maintains her business in Jaya's neighborhood which is triggering for her
 
-## NEEDS <a name="needs"></a>
+## Needs <a name="needs"></a>
 These are the survivor’s needs (in order of immediacy / importance):
 1. For Ann to move the location of her studio on Nostrand Ave, and for her to eventually relocate her home out of the neighborhood (Crown Heights)
 2. For Ann to negotiate boundaries around groups and events that may take place in the overlap of their two circles (ie. which events not to go to, what happens when both people are there)
 
-## WHAT YOU CAN DO <a name="what-to-do"></a>
+## What You Can Do <a name="what-to-do"></a>
 ### If you do not know Ann:
 We ask that you please **do not** reach out to her, comment on her social media, or contact her in any way. We encourage people to talk about this issue with those you know and trust (word of mouth is best).
 1.  Our goal here is not rooted in canceling this person, but about getting the survivor's needs met, which are direct consequences of the harm Ann caused. Online comments and messages from strangers can feel alienating, isolating and make one's defenses shoot up. We think this is counterproductive to our goals.
