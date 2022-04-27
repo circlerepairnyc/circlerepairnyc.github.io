@@ -5,7 +5,7 @@ In response to questions that have come up in the past regarding this situation,
 
 ## Didn't this happen a long time ago? Why is this an issue?
 
-I'm still addressing it because it is an ongoing issue. Defamation, slander, ableism are all ongoing. Ann's business was opened blocks from my home after the assault. This business is still in my neighborhood, along my subway path. This continued defamation, slander, and racism is a clear example of DARVO. 
+I'm still addressing it because it is an ongoing issue. Defamation, slander, ableism are all ongoing. Ann's business was opened blocks from my home after the assault. This business is still in my neighborhood, along my subway path. This continued defamation, slander, and racism is a clear example of DARVO (Deny, Attack, Reverse Victim and Offender). 
 
 [ANN'S RESPONSE TO OUR INVITATION LETTER.](https://docs.google.com/document/d/19B60BA9lbg1TWm0_thoHphgFnf4hkSiDbczNxap-4Eo/edit?usp=sharing)
 
