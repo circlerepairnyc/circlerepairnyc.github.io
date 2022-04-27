@@ -1,4 +1,4 @@
-# Circle Repair NYC
+# Mutual Aid Request for Jaya
 _This is a Mutual Aid Request intended to secure safety and stability for Jaya, a dark-skinned Telegu South Asian trans survivor of intimate partner violence by her white ex-partner, Ann._
 
 _We are making this request after trying to engage in a confidential accountability process with Ann, who has refused any and all requests for accountability. She has since opened a business close to where Jaya  has lived for over a decade, which impacts Jaya’s sense of safety and wellbeing._
