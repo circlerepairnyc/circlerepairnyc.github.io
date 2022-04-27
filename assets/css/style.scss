@@ -11,8 +11,22 @@ $color-green: #748C4F;
 $font-avenir: 'Avenir Medium';
 $font-quicksand: 'Quicksand', sans-serif;
 
+body {
+  color: #212121;
+}
+
+section {
+  width:80%;
+  float:right;
+  padding-bottom:50px;
+}
+
 h1, h2, h3 {
   font-family: $font-avenir;
+}
+
+h3 {
+ font-size: 18px; 
 }
 
 p, ol, ul {
