@@ -1,4 +1,4 @@
-# FAQ
+# Interview with Jaya
 In response to questions that have come up in the past regarding this situation, we have put this FAQ together as an interview with the survivor, Jaya, whose voice is expressed here. While these are responses to those questions, we are not trying to convince anyone. This is just a space for the survivor to share her story.
 
 **The specific documents/evidence mentioned below are marked in capital letters, and are available to pod members or close relations committed to TJ by request via email at <circlerepairnyc@gmail.com>.**
