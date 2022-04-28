@@ -7,7 +7,7 @@ In response to questions that have come up in the past regarding this situation,
 
 I'm still addressing it because it is an ongoing issue. Defamation, slander, ableism are all ongoing. Ann's business was opened blocks from my home after the assault. This business is still in my neighborhood, along my subway path. This continued defamation, slander, and racism is a clear example of DARVO (Deny, Attack, Reverse Victim and Offender). 
 
-[ANN'S RESPONSE TO OUR INVITATION LETTER.](https://docs.google.com/document/d/19B60BA9lbg1TWm0_thoHphgFnf4hkSiDbczNxap-4Eo/edit?usp=sharing)
+<a href="https://docs.google.com/document/d/19B60BA9lbg1TWm0_thoHphgFnf4hkSiDbczNxap-4Eo/edit?usp=sharing" target="_blank">ANN'S RESPONSE TO OUR INVITATION LETTER.</a>
 
 ## Isn't this just a she-said-she-said situation with two different accounts where it is hard to know what the truth is?
 
